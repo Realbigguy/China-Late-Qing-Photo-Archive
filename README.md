@@ -20,6 +20,9 @@
 剑桥大学蒙古和内亚研究组：https://www.miasu.socanth.cam.ac.uk/projects/borders/places/kyakhta?utm_source=chatgpt.com  
 买卖城2013年照片：https://zh.wikipedia.org/wiki/File:MaimaichengUB3.jpg  
 疑似买卖城中国官员照片：https://www.photo12.com/fr/image/hrm24a03_144 another：https://www.photo12.com/fr/image/hrm24a03_149  
+大清国出使王大臣旗帜图册：https://www.loc.gov/item/c65000146/  
+升平署脸谱：https://www.loc.gov/item/2021668769/  
+
 
 
 
