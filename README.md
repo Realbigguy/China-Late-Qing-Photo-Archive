@@ -15,7 +15,7 @@
 - 引用请保留来源机构与编号
 
 ## 📷 备忘记录与待查找
-买卖城图：https://fr.temdeglel.com/2022/06/maimaicheng-dikh-khuree-et-dorgoo.html?m=1
+买卖城图：https://fr.temdeglel.com/2022/06/maimaicheng-dikh-khuree-et-dorgoo.html?m=1  
 外蒙独立后的华商损失，其中有广全泰：https://www.sohu.com/a/444861237_115479?utm_source=chatgpt.com
 
 
