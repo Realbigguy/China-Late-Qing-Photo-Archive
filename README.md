@@ -14,5 +14,7 @@
 - 注释为整理者个人研究说明
 - 引用请保留来源机构与编号
 
-## 📷 照片索引
+## 📷 备忘记录与待查找
+买卖城图：https://fr.temdeglel.com/2022/06/maimaicheng-dikh-khuree-et-dorgoo.html?m=1
+
 
