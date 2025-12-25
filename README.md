@@ -16,6 +16,11 @@
 
 ## 📷 备忘记录与待查找
 买卖城图：https://fr.temdeglel.com/2022/06/maimaicheng-dikh-khuree-et-dorgoo.html?m=1  
-外蒙独立后的华商损失，其中有广全泰：https://www.sohu.com/a/444861237_115479?utm_source=chatgpt.com
+外蒙独立后的华商损失，其中有广全泰：https://www.sohu.com/a/444861237_115479?utm_source=chatgpt.com  
+剑桥大学蒙古和内亚研究组：https://www.miasu.socanth.cam.ac.uk/projects/borders/places/kyakhta?utm_source=chatgpt.com  
+买卖城2013年照片：https://zh.wikipedia.org/wiki/File:MaimaichengUB3.jpg  
+疑似买卖城中国官员照片：https://www.photo12.com/fr/image/hrm24a03_144 another：https://www.photo12.com/fr/image/hrm24a03_149  
+
+
 
 
